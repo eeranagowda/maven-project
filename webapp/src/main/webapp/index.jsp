@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Bangalore and Mysore and Raichur
+Hello, Welcome to great leaders from Bangalore and Mysore..
